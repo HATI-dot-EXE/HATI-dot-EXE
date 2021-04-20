@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @HATI-dot-EXE
+- 👀 I’m interested in: <Knowledge/>
+- 🌱 I’m currently learning: HTML/PHP/C#/JAVA/JAVASCRIPT
+- 💞️ I’m looking to collaborate on: <Top Secret>
+- 📫 How to reach me: <H A T I/>#9155
